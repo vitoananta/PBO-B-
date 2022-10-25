@@ -1,2 +1,2 @@
-# Vito Febrian Ananta
-# 5025211224
+# Nama  : Vito Febrian Ananta
+# NRP : 5025211224
